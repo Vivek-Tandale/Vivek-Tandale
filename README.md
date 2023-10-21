@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning Machine Learning
 - 👯 I’m looking to collaborate on anything Data Science related
 - 🤔 I’m looking for help with Advanced Machine Learning
-- 💬 Ask me about ...
+- 💬 Ask me about (nothing, I consider myself a novice 😇)
 - 📫 How to reach me: vivekbtandale@gmail.com
-- 😄 Pronouns: (don't just don't....)
+- 😄 Pronouns: (don't just don't.... 😤)
 - ⚡ Fun fact: I own 12 varinats of the Rubix Cube
