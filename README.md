@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about (nothing, I consider myself a novice 😇)
 - 📫 How to reach me: vivekbtandale@gmail.com
 - 😄 Pronouns: (don't just don't.... 😤)
-- ⚡ Fun fact: I own 12 varinats of the Rubix Cube
+- ⚡ Fun fact: I own 12 variants of the Rubix Cube
